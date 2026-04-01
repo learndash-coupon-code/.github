@@ -6,6 +6,8 @@ We've tested and verified every LearnDash discount code listed below. Unlike ran
 
 LearnDash powers online courses for Fortune 500 companies, major universities, and over 10,000 course creators worldwide. With features like drag-and-drop course building, advanced quizzes, certificates, and built-in payment processing, it's the gold standard for WordPress-based e-learning. Ready to save? Let's dive into the working deals.
 
+[![learndash coupon](https://github.com/user-attachments/assets/29ab15fa-8f2b-4238-b662-f5f163b1de1e)](https://bit.ly/4bUiGet)
+
 ---
 
 ## Active LearnDash Coupon Codes & Discount Deals April 2026
