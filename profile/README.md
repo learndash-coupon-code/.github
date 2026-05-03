@@ -1,4 +1,4 @@
-# LearnDash Coupon Code April 2026 – Get 20% OFF Verified
+# LearnDash Coupon Code May 2026 – Get 20% OFF Verified
 
 **LearnDash coupon code** hunters, you've hit the jackpot! With our exclusive 20% discount, you can grab the most powerful WordPress LMS plugin starting at just **$159/year** instead of $199. Whether you're a course creator, training business, or educational institution, this verified deal helps you launch professional online courses without breaking the bank.
 
@@ -10,9 +10,9 @@ LearnDash powers online courses for Fortune 500 companies, major universities, a
 
 ---
 
-## Active LearnDash Coupon Codes & Discount Deals April 2026
+## Active LearnDash Coupon Codes & Discount Deals May 2026
 
-*Last Updated: April 2026* – All deals below are verified and tested by our team. Click the special activation links to apply discounts automatically.
+*Last Updated: May 2026* – All deals below are verified and tested by our team. Click the special activation links to apply discounts automatically.
 
 ### 20% OFF LearnDash Coupon Code – Exclusive Sitewide Discount
 
